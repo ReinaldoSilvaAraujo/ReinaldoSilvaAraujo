@@ -11,4 +11,5 @@ Meu nome é Reinaldo Silva Araujo
 - reinaldoaraujo@professor.educacao.sp.gov.br
 
 ![](https://media1.tenor.com/m/dSAPMCictMQAAAAC/naruto.gif)
+![](https://media1.tenor.com/m/ZnpxgNXkVbEAAAAd/helldivers-automaton.gif)
 - 
